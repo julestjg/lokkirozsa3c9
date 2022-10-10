@@ -1,1 +1,0 @@
-# lokkirozsa3c9
